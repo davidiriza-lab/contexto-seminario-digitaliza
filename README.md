@@ -44,7 +44,7 @@ El grupo de WhatsApp es la pieza clave: **el enlace para entrar solo llega ahí.
 
 No lo inventes. Si tu pieza lo necesita, pregúntalo primero.
 
-- **Precio y forma de pago de ANDI.** Todavía no hay precio. Por ahora la oferta solo pide los datos y un asesor escribe por WhatsApp.
+- **Plazos y garantía de ANDI.** El precio ya está: **$11,997 MXN**, igual que el Club Sinergético en el webinar. Se paga en pesos, con tarjeta o Mercado Pago. Con tarjeta de crédito también se puede pagar a meses, **con intereses**: nunca escribir «meses sin intereses». La garantía todavía no está definida.
 - **¿Queda grabado el seminario?** Es la objeción que más sale («el jueves a las 8 estoy despachando»). Si hay repetición o grabación, decirlo sube registros; si no la hay, **no se promete**.
 - **Duración de la sesión.** No está confirmada y no se publica.
 - **Cifras de Synergy Unlimited 2026** («8,000 personas»). Vienen de la oferta que aprobó Manuel. Antes de ponerlas en un anuncio, confírmalas con él.

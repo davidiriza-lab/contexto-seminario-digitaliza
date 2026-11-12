@@ -99,5 +99,6 @@ Dos boletos General, para ti y alguien de tu equipo. En México es del 17 al 19 
 
 ## Lo que falta
 
-- **Precio, plazos, garantía y liga de pago.** No están definidos. La oferta hoy dice «Dejas tus datos y un asesor te escribe por WhatsApp».
+- **Precio:** $11,997 MXN, igual que el Club Sinergético en el webinar. Pago en pesos con tarjeta o Mercado Pago. A meses con tarjeta de crédito, **con intereses** (nunca «meses sin intereses»).
+- **Garantía:** no está definida.
 - Nada de bonos, descuentos ni urgencia («solo hoy», «últimos lugares») mientras Manuel no los confirme.

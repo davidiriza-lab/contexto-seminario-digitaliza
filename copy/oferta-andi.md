@@ -16,8 +16,8 @@ Academia de Negocios Digitales e IA · un programa de Synergy Education
 
 Lo que sigue después del Seminario Digitaliza tu Negocio
 
-Botón: **Quiero entrar a ANDI**
-Debajo: Dejas tus datos y un asesor te escribe por WhatsApp.
+Botón: **Quiero entrar a ANDI** · $11,997 MXN
+Debajo: Dejas tus datos y pasas al pago seguro.
 
 ## Hoy / Con ANDI
 
@@ -76,7 +76,7 @@ Aquí encuentras: **Tu próximo socio. Tu próximo proveedor. Tu próximo client
 3. **Pase doble a Synergy Unlimited.** El evento de negocios más importante. Dos boletos General, para ti y alguien de tu equipo.
 4. **Comunidad del Club Sinergético.** 12 meses: el Lunes Sinergético en vivo y los grupos de tu ciudad y tu país.
 
-**Sistema ANDI.** Inscríbete hoy y un asesor te escribe por WhatsApp para confirmar tu lugar. *(Cuando haya precio, va aquí.)*
+**Sistema ANDI · $11,997 MXN.** Debajo del botón: «Dejas tus datos y pasas al pago seguro.»
 
 Botón: **Quiero entrar a ANDI**
 
