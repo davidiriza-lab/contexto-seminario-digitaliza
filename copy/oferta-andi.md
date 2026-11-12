@@ -89,4 +89,4 @@ Botón: **Quiero entrar a ANDI**
 ## Tu primera clase en vivo es el lunes.
 
 Botón: **Quiero entrar a ANDI**
-Dejas tus datos y un asesor te escribe por WhatsApp.
+Dejas tus datos y pasas al pago seguro.
