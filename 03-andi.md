@@ -99,6 +99,6 @@ Dos boletos General, para ti y alguien de tu equipo. En México es del 17 al 19 
 
 ## Lo que falta
 
-- **Precio:** $11,997 MXN, igual que el Club Sinergético en el webinar. Pago en pesos con tarjeta o Mercado Pago. A meses con tarjeta de crédito, **con intereses** (nunca «meses sin intereses»).
+- **Precio:** **3 planes** (Manuel, 12-nov): **3 meses $5,997** (en vivo, sin pase a Synergy Unlimited) · **6 meses $6,997** (+ pase doble a Synergy Unlimited 2027) · **12 meses $9,997** (+ pase doble VIP). En 12 pagos: $570 / $665 / $950; en 24: $284 / $332 / $474 (con tarjeta de crédito, **con intereses**: nunca «meses sin intereses»). O 4 pagos diferidos: $1,800 / $2,100 / $3,000. Se aparta con $1,000 y congela el precio 30 días. En la presentación: valor $87,973, tachado $19,997, desde $5,997. Efectivo, SPEI o dudas: un asesor por WhatsApp.
 - **Garantía:** no está definida.
 - Nada de bonos, descuentos ni urgencia («solo hoy», «últimos lugares») mientras Manuel no los confirme.

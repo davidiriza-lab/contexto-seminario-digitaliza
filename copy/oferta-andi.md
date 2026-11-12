@@ -16,8 +16,8 @@ Academia de Negocios Digitales e IA · un programa de Synergy Education
 
 Lo que sigue después del Seminario Digitaliza tu Negocio
 
-Botón: **Quiero entrar a ANDI** · $11,997 MXN
-Debajo: Dejas tus datos y pasas al pago seguro.
+Botón: **Ver los planes** · ~~$19,997~~ · Desde $5,997
+Debajo: Eliges tu plan, dejas tus datos y pasas al pago seguro.
 
 ## Hoy / Con ANDI
 
@@ -76,7 +76,11 @@ Aquí encuentras: **Tu próximo socio. Tu próximo proveedor. Tu próximo client
 3. **Pase doble a Synergy Unlimited.** El evento de negocios más importante. Dos boletos General, para ti y alguien de tu equipo.
 4. **Comunidad del Club Sinergético.** 12 meses: el Lunes Sinergético en vivo y los grupos de tu ciudad y tu país.
 
-**Sistema ANDI · $11,997 MXN.** Debajo del botón: «Dejas tus datos y pasas al pago seguro.»
+Caja: **Valor total $87,973 · ~~$19,997~~ · Desde $5,997** · «3 planes: 3, 6 o 12 meses en vivo.» · Botón: **Ver los planes**
+
+## Elige tu plan. / Tres formas de entrar al Sistema ANDI.
+
+**3 planes** (Manuel, 12-nov): **3 meses $5,997** (en vivo, sin pase a Synergy Unlimited) · **6 meses $6,997** (+ pase doble a Synergy Unlimited 2027) · **12 meses $9,997** (+ pase doble VIP). En 12 pagos: $570 / $665 / $950; en 24: $284 / $332 / $474 (con tarjeta de crédito, **con intereses**: nunca «meses sin intereses»). O 4 pagos diferidos: $1,800 / $2,100 / $3,000. Se aparta con $1,000 y congela el precio 30 días. En la presentación: valor $87,973, tachado $19,997, desde $5,997. Efectivo, SPEI o dudas: un asesor por WhatsApp.
 
 Botón: **Quiero entrar a ANDI**
 

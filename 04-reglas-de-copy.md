@@ -17,7 +17,7 @@ Salen de correcciones reales. Cada una tiene su porqué.
    Usa solo las de [01-seminario.md](01-seminario.md) y [03-andi.md](03-andi.md). No redondees hacia arriba ni inventes testimonios, resultados o porcentajes.
 
 5. **No prometas lo que no está confirmado.**
-   La grabación, los bonos, la duración y la garantía no están definidos. El precio de ANDI sí: $11,997 MXN, y los meses son con intereses. Ver el [README](README.md#lo-que-todavía-no-está-definido).
+   La grabación, los bonos, la duración y la garantía no están definidos. Los precios de ANDI sí: 3 planes desde $5,997 (ver 03-andi.md), y los pagos a meses son con intereses. Ver el [README](README.md#lo-que-todavía-no-está-definido).
 
 6. **Nombres oficiales, bien escritos.**
    - Seminario Digitaliza tu Negocio (no «el webinar», no «el evento», no «Andy»).
